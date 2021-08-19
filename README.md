@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Shao wen zhe
+- 👀 I’m interested in the table tennis ,the delicious food and my work!
+- 📫 I’m currently learning Machine Learning in hainan university for a master's degree
+- 🗺️ My hometown is in pingyao Shanxi province
